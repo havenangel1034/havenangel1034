@@ -4,3 +4,5 @@
 - 📫 How to reach me email me at gabbie10112005@gmail.com
 - 😄 Pronouns: She/they
 - ⚡ Fun fact: Did you know Halloween was originally celebrated in Celtic cultures to ward off evil ghosts and spirits?
+- 😸 I have one cat and two dogs!
+- 📝 I also have a vivid imagination. I've always loved writing.
